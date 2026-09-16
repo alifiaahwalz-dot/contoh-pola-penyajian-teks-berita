@@ -1,0 +1,1 @@
+# contoh-pola-penyajian-teks-berita
